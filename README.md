@@ -8,3 +8,7 @@ Perfil feito em motivos academicos
 - seja contra o sistema estudando o que eles não ensinam
 
 **mariiicardoso777@gmail.com** para comprar comigo 🤙🤓
+
+
+![](https://media.tenor.com/L_YcA_qwO0gAAAAi/jojos-bizarre-adventure-anime.gif
+)
